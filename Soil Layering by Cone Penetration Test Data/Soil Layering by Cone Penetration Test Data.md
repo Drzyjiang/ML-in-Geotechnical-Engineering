@@ -3,7 +3,7 @@
 **Soil Layering by Cone Penetration Test Data**
 
 Zhiyan Jiang
-([LinkedIn.com/in/zhiyanjiang](http://linkedIn.com/zhiyanjiang))
+([LinkedIn.com/in/zhiyanjiang](http://linkedin.com/in/zhiyanjiang))
 
 May 27 2025
 
